@@ -1,2 +1,3 @@
 Sandie Godfrey had always loved sunny Exeter with its red, roasted rivers.
 Then he saw something in the distance, or rather someone. It was the figure of Chloe Noris. Chloe was a smelly teacher with squat spots and beautiful eyes.
+Sandie studied Chloe's squat spots and beautiful eyes. Eventually, he took a deep breath. "I'm sorry," began Sandie in apologetic tones, "but I don't feel the same way, and I never will. I just don't love you Chloe."
