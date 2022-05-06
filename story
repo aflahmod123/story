@@ -1,0 +1,2 @@
+Sandie Godfrey had always loved sunny Exeter with its red, roasted rivers.
+Then he saw something in the distance, or rather someone. It was the figure of Chloe Noris. Chloe was a smelly teacher with squat spots and beautiful eyes.
